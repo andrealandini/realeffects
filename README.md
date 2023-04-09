@@ -6,3 +6,8 @@ I'm not going through the details right now, since I've already uploaded my note
 
 
 ![db_re](https://user-images.githubusercontent.com/96867773/230798741-c38e93f7-294c-4742-8553-9f7c6ac64734.gif)
+
+
+
+
+![Untitled](https://user-images.githubusercontent.com/96867773/230798810-4685993e-f858-4dd7-83f8-bfdd11aa4d99.gif)
